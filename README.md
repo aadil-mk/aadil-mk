@@ -66,7 +66,7 @@ I'm always excited to collaborate on:
 
 ## 📫 How to Reach Me
 
-- **Email:** [edenxgt@gmail.com](mailto:edenxgt@gmail.com)
+- **Email:** [edenxgt@gmail.com](mailto:aadilmk10@gmail.com)
 - **LinkedIn:** [Mohammed Aadil on LinkedIn](https://www.linkedin.com/in/mohammed-aadil-mk-37bbba2b1/)
 - **Discord:** edenxgt.
 
