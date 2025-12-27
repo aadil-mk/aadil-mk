@@ -68,7 +68,7 @@ I'm always excited to collaborate on:
 
 - **Email:** [aadilmk10@gmail.com](mailto:aadilmk10@gmail.com)
 - **LinkedIn:** [Mohammed Aadil on LinkedIn](https://www.linkedin.com/in/mohammed-aadil-mk-37bbba2b1/)
-- **Discord:** edenxgt.
+- **Discord:** edenzyn
 
 ## ⚡ Fun Facts
 
